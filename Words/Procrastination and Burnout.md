@@ -52,4 +52,8 @@ The point is that this affects the motivations and therefore what people feel li
 
 ----
 
-Another source of procrastination is how
+The subconscious makes a reward/effort calculation automatically every time you consider doing something. Things which you've been doing for a while that became an habit will always feel easier, regardless of their actual complexity. On the other hand, if you do something without a sense of utility or while being stressed about it, then you run into burnout. These are cases where the senses of reward and effort are distorted.
+
+Under burnout the thing to do is to switch to a task that follows your purpose in life. Sometimes mixing up tasks, doing something a little different every time also works. Or maybe find ways to integrate socialization and fun into what you are doing.
+
+Whatever it works for you, you shouldn't think about reaching a conclusion. Whether there is an end to your job doesn't matter. What matters is whether there is an end to the small part of a task you can do today. They say journey, rather than the destination, is what matters. Often it can be worse: trying to reach a destination wears you down.
