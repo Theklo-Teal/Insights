@@ -1,0 +1,7 @@
+Something is natural when it happens without intervention of an agent. Things that run spontaneously just by the cause and effect of their mechanisms. Natural things are not inherently better or bad. A lot of human achievement and comfort has been accomplished in seeking to defy nature. Humans are also not special to nature, so nature has no concern about the well-being or convenience of humans.
+
+The entity concerned about humans and which benefits by giving special meaning to them is other humans. And things produced by human ingenuity are called "artificial". These are assemblies of natural things into objects called "artifacts" which provide expression and utility in the life of someone. If there's anything bad about artifacts is just a reflection of the distortions and misaligned priorities in human minds, like weapons being made because someone finds it convenient or necessary to remove other people from the world.
+
+Much like people can be mistaken, so our artifacts can also misbehave, but still that's often better than natural things, because it allows us to learn and realize the mistakes if only we are paying attention.
+
+We shouldn't attribute "good" or "bad" as traits of something, but rather whether they provide utility and if that utility increases [[Agency]] or provokes [[Violence]].

@@ -1,0 +1,9 @@
+This is what truly distinguishes people from animals. Even in many humans don't do enough introspection and are lead by whims of their emotions without analyzing the source and purpose of feelings before acting. They don't stop to consider the possible consequences or compare the outcomes of their actions with any expectation or hypothesis they had. This is being reactionary and is the vast majority of all other living organisms operate. These entities rely on luck to progress in life, if they manage to do it at all in the very complex reality of human-built worlds. Reactionary humans can't be considered people.
+
+It isn't even a matter of hedonism. Many reactionary actions are derived from avoiding fears (very often imaginary), wanting validation and belonging, or as compensation for mental illness. All these things are acts derived from suffering and which produce suffering. It's a rather [[Synergy|entropic]] existence.
+
+A real person not only thinks and has opinions about things, but also think about what they are thinking and how legitimate are their opinions. People understand they can be misled or suffer illusions, so the watch out what is the thought process behind the conclusions they reach. This is the definition of metacognition.
+
+To think you thought...
+
+Metacognition often leads to a better understanding of [[Epistemology]] and by extension better ethics comes naturally, leading to good behavior. We don't need to care about what actions are good or bad as face value. we only care if the "why" of doing them was rational. Further from that, if bad outcomes result, it is possible to learn from them and correct course, whereas a reactionary human can't learn and will fall into [[Helplessness]].
